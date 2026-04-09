@@ -20,5 +20,5 @@ When I'm not coding, I enjoy swimming, playing tennis, and running my YouTube ch
 
 ### 📫 Let's Connect!
 * **Email:** [mmertefe06@gmail.com](mailto:mmertefe06@gmail.com)
-* **LinkedIn:** [linkedin.com/in/your-profile](#) *
+* **LinkedIn:** [linkedin.com/in/mertefe06](#) *
 * **YouTube:** [7A Origami](#)
